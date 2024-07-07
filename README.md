@@ -2,7 +2,7 @@
 UX/UI Internship 
 **Exciting News! 🌟**
 
-I am absolutely delighted to share that I have been selected for an internship with HunarIntern 🎉
+I am absolutely delighted to share that I have been selected for an internship with  @HunarIntern 🎉
 
 This is a fantastic opportunity, and I am deeply grateful to HunarIntern for believing in my potential and offering me this chance. Your support has been invaluable.
 
