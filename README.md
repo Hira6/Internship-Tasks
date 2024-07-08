@@ -14,4 +14,4 @@ Here's to new beginnings and making the most of this incredible opportunity! ðŸš
 
 #Internship #CareerGrowth #Grateful #NewBeginnings #ProfessionalDevelopment #HunarIntern
 #hunarIntern
-![Offer letter](https://github.com/Hira6/Internship-Tasks/assets/169739754/fc02db4a-5378-48e1-bbea-d179e772bd9b)
+  ![Sign Up](https://github.com/Hira6/Internship-Tasks/assets/169739754/b5de7da0-5ba9-412f-b521-c4da73429207)
